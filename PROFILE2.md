@@ -1,1 +1,1 @@
-Welcome another GitHub profile, with my own twist!
+Welcome to my other GitHub profile, with my own twist!
